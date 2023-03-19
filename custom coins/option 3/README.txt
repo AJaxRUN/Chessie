@@ -1,0 +1,1 @@
+Bauhaus Model I 1922 Chess Set by Le_Garage on Thingiverse: https://www.thingiverse.com/thing:6976
